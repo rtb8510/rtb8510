@@ -1,0 +1,5 @@
+- 👋 Hi, I’m rtb8510
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on video games
+- 📫 How to reach me: just message me lol
